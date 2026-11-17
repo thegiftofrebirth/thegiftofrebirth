@@ -3,7 +3,7 @@
 
 __________________________
 
-...................................................................................... ![](https://komarev.com/ghpvc/?username=thegiftofrebirth&style=for-the-badge&color=blueviolet&label=SACRIFICES) ......................................................................................
+....................................................................................... ![](https://komarev.com/ghpvc/?username=thegiftofrebirth&style=for-the-badge&color=blueviolet&label=SACRIFICES) .....................................................................................
 
 ***M1GR4INE, Two Time, etc***
 
