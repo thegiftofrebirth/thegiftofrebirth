@@ -3,22 +3,22 @@
 
 __________________________
 
-...................................................................................... ![](https://komarev.com/ghpvc/?username=thegiftofrebirth&style=for-the-badge&color=blueviolet&label=SACRIFICES) ......................................................................................
+ㅤㅤㅤㅤ...................................................................................... ![](https://komarev.com/ghpvc/?username=thegiftofrebirth&style=for-the-badge&color=blueviolet&label=SACRIFICES) ......................................................................................
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***M1GR4INE, Two Time, etc***
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***M1GR4INE, Two Time, etc***
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***Any/All, 15 years old***
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***Any/All, 15 years old***
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***DNI self explanatory, I block freely***
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***DNI self explanatory, I block freely***
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***Doors and Forsaken fanatic***
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***Doors and Forsaken fanatic***
 
-......................................................................................................................................................................................................................
+ㅤㅤㅤㅤ......................................................................................................................................................................................................................
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***MY FRIENDS (will update/change in the future)***
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***MY FRIENDS (will update/change in the future)***
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Chisue/Wrathgarden](https://github.com/wrathgarden)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Chisue/Wrathgarden](https://github.com/wrathgarden)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Hermit/AzureIsHere](https://github.com/AzureIsHere)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Hermit/AzureIsHere](https://github.com/AzureIsHere)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[NMGT/TheSectoredFloors](https://github.com/TheSectoredFloors)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[NMGT/TheSectoredFloors](https://github.com/TheSectoredFloors)
