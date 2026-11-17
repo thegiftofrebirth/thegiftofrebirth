@@ -3,22 +3,22 @@
 
 __________________________
 
-ㅤㅤㅤㅤ...................................................................................... ![](https://komarev.com/ghpvc/?username=thegiftofrebirth&style=for-the-badge&color=blueviolet&label=SACRIFICES) ......................................................................................
+ㅤㅤㅤ...................................................................................... ![](https://komarev.com/ghpvc/?username=thegiftofrebirth&style=for-the-badge&color=blueviolet&label=SACRIFICES) ......................................................................................
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***M1GR4INE, Two Time, etc***
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***M1GR4INE, Two Time, etc***
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***Any/All, 15 years old***
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***Any/All, 15 years old***
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***DNI self explanatory, I block freely***
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***DNI self explanatory, I block freely***
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***Doors and Forsaken fanatic***
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***Doors and Forsaken fanatic***
 
-ㅤㅤㅤㅤ......................................................................................................................................................................................................................
+ㅤㅤㅤ......................................................................................................................................................................................................................
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***MY FRIENDS (will update/change in the future)***
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***MY FRIENDS (will update/change in the future)***
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Chisue/Wrathgarden](https://github.com/wrathgarden)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Chisue/Wrathgarden](https://github.com/wrathgarden)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Hermit/AzureIsHere](https://github.com/AzureIsHere)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Hermit/AzureIsHere](https://github.com/AzureIsHere)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[NMGT/TheSectoredFloors](https://github.com/TheSectoredFloors)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[NMGT/TheSectoredFloors](https://github.com/TheSectoredFloors)
