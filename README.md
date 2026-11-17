@@ -5,20 +5,20 @@ __________________________
 
 ㅤㅤㅤ...................................................................................... ![](https://komarev.com/ghpvc/?username=thegiftofrebirth&style=for-the-badge&color=blueviolet&label=SACRIFICES) ......................................................................................
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***M1GR4INE, Two Time, etc***
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***M1GR4INE, Two Time, etc***
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***Any/All, 15 years old***
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***Any/All, 15 years old***
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***DNI self explanatory, I block freely***
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***DNI self explanatory, I block freely***
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***Doors and Forsaken fanatic***
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***Doors and Forsaken fanatic***
 
-ㅤㅤㅤ......................................................................................................................................................................................................................
+ㅤㅤㅤㅤ......................................................................................................................................................................................................................
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***MY FRIENDS (will update/change in the future)***
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***MY FRIENDS (will update/change in the future)***
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Chisue/Wrathgarden](https://github.com/wrathgarden)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Chisue/Wrathgarden](https://github.com/wrathgarden)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Hermit/AzureIsHere](https://github.com/AzureIsHere)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Hermit/AzureIsHere](https://github.com/AzureIsHere)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[NMGT/TheSectoredFloors](https://github.com/TheSectoredFloors)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[NMGT/TheSectoredFloors](https://github.com/TheSectoredFloors)
